@@ -63,4 +63,10 @@ http://www.ebay.co.uk/itm/252116384664?_trksid=p2060353.m2749.l2649&ssPageName=S
 #####£9.49
 http://www.ebay.co.uk/itm/111544566393?_trksid=p2060353.m2749.l2649&var=410534973145&ssPageName=STRK%3AMEBIDX%3AIT
 
+####HDMI to Video Converter
+#####£7.55
+http://www.ebay.co.uk/itm/321424073117?_trksid=p2060353.m2749.l2649&ssPageName=STRK%3AMEBIDX%3AIT
 
+####HDMI Splitter 1 Input 2 Output Amplifier Switch Box Hub 1x2 HDTV For PS3 1080P
+#####£5.87
+http://www.ebay.co.uk/itm/161895593877?_trksid=p2060353.m2749.l2649&ssPageName=STRK%3AMEBIDX%3AIT
